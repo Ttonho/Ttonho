@@ -12,7 +12,6 @@
   <em>arisook#7628</em>
 </h2>
 <b>
-
 • 🎂 13 Years old;
 
 • 👨‍💻 Developer.
