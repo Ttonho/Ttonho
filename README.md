@@ -9,7 +9,7 @@
 
 <pre align="center">
 <h2 align="center">
-  <em>arisook#7628</em>
+  <em>ark#7628</em>
 </h2>
 <b>
 • 🎂 13 Years old;
