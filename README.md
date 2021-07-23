@@ -13,8 +13,6 @@
 </h2>
 <b>
 
-• 🎩 Offensive Security student;
-
 • 🎂 13 Years old;
 
 • 👨‍💻 Developer.
