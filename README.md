@@ -9,12 +9,9 @@
 
 <pre align="center">
 <h2 align="center">
-  <em>ark#7628</em>
+  <em>arukii#0015</em>
 </h2>
 <b>
-• 🎂 13 Years old;
-
-• 👨‍💻 Developer.
 
 </b>
 </pre>
