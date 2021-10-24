@@ -12,6 +12,6 @@
   <em>arukii#0015</em>
 </h2>
 <b>
-
+<img src="https://c.tenor.com/-e8oAhJxhpkAAAAC/dance-head-shaking.gif">
 </b>
 </pre>
