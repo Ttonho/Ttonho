@@ -21,4 +21,4 @@
 
 * Site: https://rataria.com
 * TwitchTV: https://twitch.tv/SapoPretoDaChuva
-* Twitter: https://twitter.com/Sapo0000DaChuva
+* Twitter: https://twitter.com/TomTonho_
